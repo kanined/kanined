@@ -13,7 +13,7 @@
    ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 .<img width="50" height="60" alt="image" src="https://github.com/user-attachments/assets/81f0fee3-1727-4265-aa91-9b16c5ebc60f" />
 
-<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/61323434-24e2-48cf-bc2d-3d2cb3634659" />
+<img width="700" height="700" alt="image" src="https://github.com/user-attachments/assets/61323434-24e2-48cf-bc2d-3d2cb3634659" />
 
 
 <img width="900" height="490" alt="image" src="https://github.com/user-attachments/assets/e9f5a42e-6044-4d6c-8975-b3d8ff08b45c" />
